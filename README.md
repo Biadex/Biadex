@@ -2,7 +2,7 @@ Abiade Bisi-Kazeem
 
 🎓 MSc Business Analytics Candidate at Deakin University
 
-📧 Email: byadekazeem@yahoo.com | 📱 Phone: 0481869635
+📧 Email: byadekazeem@yahoo.com | 📱 Phone: +61481869635
 
 👨‍💻 Pronouns: He/Him
 
